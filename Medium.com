@@ -1,0 +1,1 @@
+https://nickmajor.medium.com/
